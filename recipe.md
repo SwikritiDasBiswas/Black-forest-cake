@@ -16,3 +16,4 @@ Combine whipping cream and confectioner's sugar in a chilled medium bowl. Beat w
 Step 6
 With long serrated knife, split each cake layer horizontally in half. Tear one split layer into crumbs; set aside. Reserve 1 1/2 cups Frosting for decorating cake; set aside. Gently brush loose crumbs off top and side of each cake layer with pasty brush or hands. To assemble, place one cake layer on cake plate. Spread with 1 cup frosting; top with 3/4 cup cherry topping. Top with second cake layer; repeat layers of frosting and cherry topping. Top with third cake layer. Frost side of cake. Pat reserved crumbs onto frosting on side of cake. Spoon reserved frosting into pastry bag fitted with star decorator tip. Pipe around top and bottom edges of cake. Spoon remaining cherry topping onto top of cake.
 
+AND NOW YOUR CAKE IS READY.
